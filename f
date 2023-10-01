@@ -1,1 +1,1 @@
-ha bhai sahi chal rha h sb kuch 
+update kr lya
