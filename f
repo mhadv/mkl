@@ -1,1 +1,1 @@
-ho kya saak ta h tra 
+ho kya saak ta h tra singpor sa kam kr rha hu ma dekh ta kaam ho ta h ya nhi
